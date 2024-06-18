@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning -||-
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me danielchlebec45@gmail.com
-- 😄 Pronouns: he/his
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: i like minecraft
 
 <!---
